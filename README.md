@@ -27,4 +27,4 @@
 4. [Singing account](https://www.instagram.com/bingoastrr)
 5. [Drawing account](https://www.instagram.com/sweeveraw)
 6. [Making account](https://www.instagram.com/wimaveru)
-7. [Youtube](youtube.com/channel/UCNkJWZWQA6bLox1QQQodi0Q)
+7. [Youtube](https://youtube.com/channel/UCNkJWZWQA6bLox1QQQodi0Q)
