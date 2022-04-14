@@ -21,10 +21,10 @@
 
 *Refer image with "INSTAGRAM" and "YOUTUBE" below ; 
 
-1. ![Daily account](https://www.instagram.com/intellce_dnisuy/)
-2. ![Exercise account](https://www.instagram.com/mransformer/)
-3. ![Writing account](https://www.instagram.com/biteetmotivator)
-4. ![Singing account](https://www.instagram.com/bingoastrr)
-5. ![Drawing account](https://www.instagram.com/sweeveraw)
-6. ![Making account](https://www.instagram.com/wimaveru)
-7. ![Youtube](youtube.com/channel/UCNkJWZWQA6bLox1QQQodi0Q)
+1. [Daily account](https://www.instagram.com/intellce_dnisuy/)
+2. [Exercise account](https://www.instagram.com/mransformer/)
+3. [Writing account](https://www.instagram.com/biteetmotivator)
+4. [Singing account](https://www.instagram.com/bingoastrr)
+5. [Drawing account](https://www.instagram.com/sweeveraw)
+6. [Making account](https://www.instagram.com/wimaveru)
+7. [Youtube](youtube.com/channel/UCNkJWZWQA6bLox1QQQodi0Q)
