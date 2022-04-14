@@ -21,10 +21,10 @@
 
 *Refer image with "INSTAGRAM" and "YOUTUBE" below ; 
 
-1. ![Daily account](C:\Users\kimto\KHANUY\Image\intellce_dnisuy.JPG)
-2. ![Exercise account](C:\Users\kimto\KHANUY\Image\mransformer.JPG)
-3. ![Writing account](C:\Users\kimto\KHANUY\Image\biteetmotivator.JPG)
-4. ![Singing account](C:\Users\kimto\KHANUY\Image\bingoastrr.JPG)
-5. ![Drawing account](C:\Users\kimto\KHANUY\Image\sweeveraw.JPG)
-6. ![Making account](C:\Users\kimto\KHANUY\Image\wimaveru.JPG)
-7. ![Youtube. "김주책의 은밀한 사생활"](C:\Users\kimto\KHANUY\Image\김주책의 은밀한 사생활.JPG)
+1. ![Daily account](https://www.instagram.com/intellce_dnisuy/)
+2. ![Exercise account](https://www.instagram.com/mransformer/)
+3. ![Writing account](https://www.instagram.com/biteetmotivator)
+4. ![Singing account](https://www.instagram.com/bingoastrr)
+5. ![Drawing account](https://www.instagram.com/sweeveraw)
+6. ![Making account](https://www.instagram.com/wimaveru)
+7. ![Youtube](youtube.com/channel/UCNkJWZWQA6bLox1QQQodi0Q)
