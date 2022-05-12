@@ -10,8 +10,9 @@
 2. [Exercise account](https://www.instagram.com/mransformer/)
 3. [Writing account](https://www.instagram.com/biteetmotivator/)
 4. [Singing account](https://www.instagram.com/bingoastrr/)
-5. [Drawing account](https://www.instagram.com/sweeveraw/)
+5. [Drawing account](https://www.instagram.com/sweeverawprogrammer/)
 6. [Making account](https://www.instagram.com/wimavery/)
+7. [Companion Lovely Dog. Her name is "향기"](https://www.instagram.com/sibaredolence)
 
  And i have "YOUTUBE" kkkkk. now this account is just Exercise. But I swear just one thing. Where will have the many subject, topic, theme. I will upload the subject about "PROGRAMMING", "ANIMAL", "DANCE", "ETC"
 
