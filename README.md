@@ -10,7 +10,7 @@
 2. [Exercise account](https://www.instagram.com/mransformer/)
 3. [Writing account](https://www.instagram.com/biteetmotivator/)
 4. [Singing account](https://www.instagram.com/bingoastrr/)
-5. [Drawing account](https://www.instagram.com/sweeverawprogrammer/)
+5. [Programmer account](https://www.instagram.com/sweeverawprogrammer/)
 6. [Making account](https://www.instagram.com/wimavery/)
 7. [Companion Lovely Dog. Her name is "향기"](https://www.instagram.com/sibaredolence)
 
